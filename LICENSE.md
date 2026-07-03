@@ -1,4 +1,4 @@
-# 
+# Elite binance futures bot fluxo de trabalho for Mac OS | Profissional binance futures bot fluxo de trabalho for PC Windows. Featuring API de exchange centralizada and API de exchange descentralizada — optimized for maximum performance.
 
 
 
